@@ -1,11 +1,11 @@
-<h1 align="center"><b>𝗗𝗘𝗔𝗗 𝗦𝗣𝗔𝗠 𝗕𝗢𝗧 </b></h1>
+<h1 align="center"><b> 𝐄𝐑𝐑𝐎𝐑 𝐒𝐏𝐀𝐌 𝐁𝐎𝐓 </b></h1>
 
 <h4 align="center"> 𝐀 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 𝐒𝐏𝐀𝐌𝐁𝐎𝐓𝐒</h4>
 
-<p align="center"><a href="https://t.me/Saif_Dictator"><img src="https://graph.org/file/eb514f6d4b35027f8fe0b.jpg" width="400"></a></p>
+<p align="center"><a href="https://t.me/Saif_Dictator"><img src="https://graph.org/file/ec8529b2b8a71988f8b85.jpg.jpg" width="400"></a></p>
 
 
-> ⭐️ Thanks to everyone for using this op Dead spam bot. That is the greatest pleasure we have !
+> ⭐️ Thanks to everyone for using this op Error spam bot. That is the greatest pleasure we have !
 
 
 # ᴅᴇᴘʟᴏʏᴍᴇɴᴛ
